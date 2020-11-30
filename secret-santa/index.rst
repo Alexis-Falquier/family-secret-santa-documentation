@@ -10,7 +10,7 @@ Family Secret Santa
 
 Below there is a list of all of our names, click on your **own** name to find out who you will be the secret santa for. To keep the authenticity of the secret santa don't click on anyone else's name!
 
-Looking forward to seeing you all very soon! In the meantime may your dreams be of powder and your day dreams of apré's!
+Love you all!
 
 
 Click on your name to find out who you got!
